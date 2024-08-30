@@ -1,4 +1,4 @@
-- 🟢 - Not busy, but w2i because I might be offtab.
+- 🟢/💬 - Not busy, but w2i because I might be offtab.
 
 - 🌙 - Confirmed offtab </3
 
