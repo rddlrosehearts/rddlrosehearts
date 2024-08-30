@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=kmshirorui&color=red)
 - 🟢/💬 - Not busy, but w2i because I might be offtab.
 
 - 🌙 - Confirmed offtab </3
