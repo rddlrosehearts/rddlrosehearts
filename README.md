@@ -1,9 +1,5 @@
-![](https://komarev.com/ghpvc/?username=kmshirorui&color=red)
-- 🟢/💬 - Not busy, but w2i because I might be offtab.
+![](https://komarev.com/ghpvc/?username=rddlrosehearts&label=✮⋆˙&color=67b5a4)
 
-- 🌙 - Confirmed offtab </3
-
-- ⛔ - May be busy doing something else. Still feel free to w2i!
 
 <!---
 rddlrosehearts/rddlrosehearts is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
